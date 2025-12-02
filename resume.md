@@ -1,6 +1,6 @@
-# Brandon Boswell
+# Brandon Boswell - Technical Program Manager
 
-Seattle, WA | linkedin.com/in/brandon-boswell01 | bsquared-run.com | github.com/bsquared-run
+Seattle, WA | [linkedin.com/in/brandon-boswell01](https://linkedin.com/in/brandon-boswell01) | [bsquared-run.com](https://bsquared-run.com)
 
 ## Professional Summary
 
